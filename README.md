@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Zulady
+- 👀 I’m interested in read
+- 🌱 I’m currently learning biology
+- 💞️ I’m looking to collaborate with study
+- 📫 How to reach me zuzuqb@gmail.com
